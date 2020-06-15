@@ -15,3 +15,27 @@ skin dump
 
 # [LËKURA SHQIPTARE](https://pain.s-ul.eu/HPCDDiUb)
 ![](https://osu.ppy.sh/ss/15073149/db68)
+
+# [Sanze edit](https://pain.s-ul.eu/40cHiCgl)
+![](https://osu.ppy.sh/ss/15075665/cfa0)
+
+# [boom+1025 edit](https://pain.s-ul.eu/ENaCcoXP)
+![](https://osu.ppy.sh/ss/15075670/c740)
+
+# [#azr8new white](https://pain.s-ul.eu/TToOBwqp)
+![](https://i.imgur.com/ufD43j1.jpg)
+
+# [Metanoia edit](https://pain.s-ul.eu/Wu0hzaNf)
+![](https://osu.ppy.sh/ss/15075751/5dec)
+
+# [morgan final](https://pain.s-ul.eu/gpV5XQLr)
+![](https://osu.ppy.sh/ss/15075760/4600)
+
+# [1 idk test](https://pain.s-ul.eu/G0NMV486)
+![](https://i.imgur.com/gPripg2.jpg)
+
+# [Ana skin ^^](https://pain.s-ul.eu/C8kasOso)
+![](https://osu.ppy.sh/ss/15075711/6d7e)
+
+# []()
+![]()
