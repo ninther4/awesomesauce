@@ -12,3 +12,6 @@ skin dump
 
 # [elohere-](https://pain.s-ul.eu/FtMDcFl0)
 ![](https://osu.ppy.sh/ss/15073127/9b89)
+
+# [LËKURA SHQIPTARE](https://pain.s-ul.eu/HPCDDiUb)
+![](https://osu.ppy.sh/ss/15073149/db68)
