@@ -1,4 +1,4 @@
-#most of my skins are HD only so if you play with low resolution you may just see everything transparent
+# most of my skins are HD only so if you play with low resolution you may just see everything transparent
 in that case, use this program inside your skin folder: https://pain.s-ul.eu/r5NOc3Kc
 
 # [+0xtestx!r](https://pain.s-ul.eu/vUh1Lla6)
