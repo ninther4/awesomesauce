@@ -10,7 +10,7 @@ skin dump
 # [Hanabira](https://pain.s-ul.eu/gwMx4bbS)
 ![](https://osu.ppy.sh/ss/15073117/33e0)
 
-# [elohere-](https://pain.s-ul.eu/FtMDcFl0)
+# [elohere-](https://pain.s-ul.eu/XrTNgF5a)
 ![](https://osu.ppy.sh/ss/15073127/9b89)
 
 # [LËKURA SHQIPTARE](https://pain.s-ul.eu/HPCDDiUb)
