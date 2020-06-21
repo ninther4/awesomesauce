@@ -1,5 +1,5 @@
 # asdfasdf
-skin dump
+i only use like 2 o 3 skins from here lol
 
 # [+0xtestx!r](https://pain.s-ul.eu/vUh1Lla6)
 ![](https://osu.ppy.sh/ss/15073072/a901)
