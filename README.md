@@ -19,6 +19,9 @@ in that case, use this program inside your skin folder: https://pain.s-ul.eu/r5N
 # [Sanze edit](https://pain.s-ul.eu/40cHiCgl)
 ![](https://osu.ppy.sh/ss/15075665/cfa0)
 
+# [THE LUNA HD METHOD](https://luma.s-ul.eu/K4aY9Xv1)
+![](https://i.imgur.com/K4kcuUx.jpeg)
+
 # [boom+1025 edit](https://pain.s-ul.eu/ENaCcoXP)
 ![](https://osu.ppy.sh/ss/15075670/c740)
 
