@@ -1,7 +1,7 @@
 # most of my skins are HD only so if you play with low resolution you may just see everything transparent
-in that case, use this program inside your skin folder: https://pain.s-ul.eu/r5NOc3Kc
+in that case, use this thing inside your skin folder: https://pain.s-ul.eu/r5NOc3Kc
 
-# [+0xtestx!r](https://pain.s-ul.eu/sksnUjvT)
+# [+0xtestx!r](pain.s-ul.eu/IfgRWocy)
 ![](https://osu.ppy.sh/ss/15073072/a901)
 
 # [lowgamma](https://pain.s-ul.eu/nnhXC2nz)
