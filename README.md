@@ -8,10 +8,10 @@ in that case, use this thing inside your skin folder: https://pain.s-ul.eu/r5NOc
 ![](https://i.imgur.com/0eN1543.jpg)
 
 # [Hanabira](https://pain.s-ul.eu/gwMx4bbS)
-![](https://osu.ppy.sh/ss/15073117/33e0)
+![](https://i.imgur.com/jRzWtAx.jpg)
 
 # [elohere-](https://pain.s-ul.eu/XrTNgF5a)
-![](https://osu.ppy.sh/ss/15073127/9b89)
+![](https://i.imgur.com/7qkSNhK.jpg)
 
 # [LËKURA SHQIPTARE](https://pain.s-ul.eu/HPCDDiUb)
 ![](https://osu.ppy.sh/ss/15073149/db68)
@@ -23,7 +23,7 @@ in that case, use this thing inside your skin folder: https://pain.s-ul.eu/r5NOc
 ![](https://i.imgur.com/K4kcuUx.jpeg)
 
 # [boom+1025 edit](https://pain.s-ul.eu/ENaCcoXP)
-![](https://osu.ppy.sh/ss/15075670/c740)
+![](https://i.imgur.com/utSx1do.jpg)
 
 # [#azr8new white](https://pain.s-ul.eu/TToOBwqp)
 ![](https://i.imgur.com/ufD43j1.jpg)
