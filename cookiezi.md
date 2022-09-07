@@ -2,7 +2,7 @@
 in that case, use this thing inside your skin folder: https://pain.s-ul.eu/r5NOc3Kc
 
 # [+0xtestx!r](https://drive.google.com/file/d/1dhbBTOYs91j0sJk0AB1k0Vb91JdD9KQy/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15073072/a901)
+![](https://i.imgur.com/SM8B074.jpg)
 
 # [lowgamma](https://pain.s-ul.eu/nnhXC2nz)
 ![](https://i.imgur.com/0eN1543.jpg)
@@ -14,10 +14,10 @@ in that case, use this thing inside your skin folder: https://pain.s-ul.eu/r5NOc
 ![](https://i.imgur.com/7qkSNhK.jpg)
 
 # [LËKURA SHQIPTARE](https://pain.s-ul.eu/HPCDDiUb)
-![](https://osu.ppy.sh/ss/15073149/db68)
+![](https://i.imgur.com/JRHDd5L.jpg)
 
 # [Sanze edit](https://pain.s-ul.eu/40cHiCgl)
-![](https://osu.ppy.sh/ss/15075665/cfa0)
+![](https://i.imgur.com/0JbqpzB.jpg)
 
 # [THE LUNA HD METHOD](https://luma.s-ul.eu/K4aY9Xv1)
 ![](https://i.imgur.com/K4kcuUx.jpeg)
@@ -29,16 +29,16 @@ in that case, use this thing inside your skin folder: https://pain.s-ul.eu/r5NOc
 ![](https://i.imgur.com/ufD43j1.jpg)
 
 # [Metanoia edit](https://pain.s-ul.eu/Wu0hzaNf)
-![](https://osu.ppy.sh/ss/15075751/5dec)
+![](https://i.imgur.com/x0yWJuL.jpg)
 
 # [morgan final](https://pain.s-ul.eu/gpV5XQLr)
-![](https://osu.ppy.sh/ss/15075760/4600)
+![](https://i.imgur.com/UuH6dSL.jpg)
 
 # [1 idk test](https://pain.s-ul.eu/G0NMV486)
 ![](https://i.imgur.com/gPripg2.jpg)
 
 # [Ana skin ^^](https://pain.s-ul.eu/C8kasOso)
-![](https://osu.ppy.sh/ss/15075711/6d7e)
+![](https://i.imgur.com/a6Aw7Sg.jpg)
 
 # []()
 ![]()
